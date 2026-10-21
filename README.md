@@ -12,4 +12,16 @@
 
 ----
 
+<details>
+  <summary>awards!</summary>
+  <img width="827" height="131" alt="image" src="https://github.com/user-attachments/assets/c9d4dcdf-b04c-4bf0-81c3-8339c6a375f4" />
+</details>
+
+<details>
+  <summary>other stuff</summary>
+  <img width="1200" height="760" alt="image" src="https://github.com/user-attachments/assets/40ff5ec4-fd80-4b23-952d-957f4cb78406" /> who are you??? if u dont wanna int w me just block me ur weird
+</details>
+
+----
+
 [![11d94fa3.gif](https://i.postimg.cc/8c05tG9V/11d94fa3.gif)](https://postimg.cc/Mf1qpCzs)
