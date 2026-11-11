@@ -6,7 +6,7 @@
 
 ----
 
-**Monty** , **Wellcheers** or **Void** ₊˚  *it/its* strictly . [![e7a8b4e4.gif](https://i.postimg.cc/269X59gY/e7a8b4e4.gif)](https://postimg.cc/ph8BGC2c)
+**Nate** , **Monty** or **Wellcheers** ₊˚  *it/its* strictly . [![e7a8b4e4.gif](https://i.postimg.cc/269X59gY/e7a8b4e4.gif)](https://postimg.cc/ph8BGC2c)
 
 [![dc1c0839.gif](https://i.postimg.cc/hvr8jXX3/dc1c0839.gif)](https://postimg.cc/5QXQKNqw) [F-05-52](https://projectmoon.miraheze.org/wiki/Opened_Can_of_WellCheers/Lobotomy_Corporation) *Fullkin* 灬 ***Non-Human*** ๑ No DNI
 
