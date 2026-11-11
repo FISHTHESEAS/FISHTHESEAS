@@ -23,7 +23,7 @@
 
 <details>
   <summary>other stuff</summary>
-  <img width="1200" height="760" alt="image" src="https://github.com/user-attachments/assets/40ff5ec4-fd80-4b23-952d-957f4cb78406" /> ↑ this was removed a whole ago i just think its funny as fuck
+  <img width="1200" height="760" alt="image" src="https://github.com/user-attachments/assets/40ff5ec4-fd80-4b23-952d-957f4cb78406" /> ↑ this was removed a while ago i just think its funny as fuck
   <img width="616" height="383" alt="image" src="https://github.com/user-attachments/assets/a7879c35-5416-4fa8-ae1a-0ba395f230d5" />
 </details>
 
