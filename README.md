@@ -15,6 +15,10 @@
 <details>
   <summary>awards!</summary>
   <img width="827" height="131" alt="image" src="https://github.com/user-attachments/assets/c9d4dcdf-b04c-4bf0-81c3-8339c6a375f4" />
+  <img width="923" height="136" alt="image" src="https://github.com/user-attachments/assets/014c0b6e-903b-4402-bf1a-2e1b2dc6fb60" />
+<img width="954" height="141" alt="image" src="https://github.com/user-attachments/assets/f946de0a-e11b-414c-a0ed-f0c8cc9cd76a" />
+<img width="1053" height="187" alt="image" src="https://github.com/user-attachments/assets/28a1fe72-096f-4f45-ad1c-88b74f71d95f" />
+<img width="780" height="140" alt="image" src="https://github.com/user-attachments/assets/c893ec2b-8f60-4987-974b-d3a9d08c29de" />
 </details>
 
 <details>
